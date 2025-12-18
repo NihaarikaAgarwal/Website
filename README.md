@@ -8,7 +8,7 @@ I’m Nihaarika Agarwal, a Computer Science MS student specializing in Artificia
 
 - [GitHub](https://github.com/NihaarikaAgarwal)  
 - [LinkedIn](https://linkedin.com/in/nihaarikaagarwal)  
-- Email: nihaarikaagarwal@example.com
+- Email: nihaarika.a22@gmail.com
 
 ---
 
